@@ -1,3 +1,2 @@
-# vpgallery
-A new theme for the vpgallery
-this project is to be deleted 
+This is the last day in the Central Bank of Malta.
+Great memories. Should have stayed less.
